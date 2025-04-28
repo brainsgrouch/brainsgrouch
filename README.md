@@ -1,23 +1,15 @@
-## 🍒WORK IN PROGRESS!! 🍒
-`please wait . . .`
-# 🍒 welcome to huckles lair !
-- certified ponytown and smurfs addict , i also run the infamous 'smruf' pony
-  
-hihi you might have found this account from ponytown ! either you're here because you're a smurfs fan , keep seeing me in the exact same place all the time , or just really wanna see smruf so badly 
-[you probably dont know who smruf is]
+## 🍒 welcome to huckles lair !
 
-# 🍒 KNOW WHO I AM !!!
-[main info]
-[list sites ur active on, socials, skins you have, n other stuffs]
-  
-[locations]
+  all other info can be found on strawpage (links located on both this account and my alt) . in the meantime , heres byi number 1 !
 
-BYF (*this is for ponytown : check straw for other*) :
-- I get really picky with whoever sends me a friend request, so please state WHY you wanted to friend me in the first place
-- Please ask me if you'd like to C+H (*even when I have it in one of my skin names*), I often run away when someone's near
+
+BYI #1 (*this is for ponytown : check straw for other stuff*) :
+- I get really picky with whoever sends me a friend request, so please state WHY you wanted to friend me in the first place [EXCEPTIONAL IF WE KNOW EACH OTHER ALREADY]
+- C+H freely !! I am now comfortable with cuds and I would appreciate if you did cuddle beside me :3 
 - DO NOT invite me to your parties; I'm in a party with my disc friends and I'm not supposed to leave it : PLUS too afraid to ask cuz I've never left it at all n I get scared leaving parties sooooo
-------------------------------------------------------
-"SMASH THAT SUBSCRIBE BUTTON" - influencer smurf
+- I sometimes hide/use skins without the github placed , if you think a person with a specific skin is me , just ask .
+
+ ,, have a smurfy tree day !
 <!--
 **brainsgrouch/brainsgrouch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
